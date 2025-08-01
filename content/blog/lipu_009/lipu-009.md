@@ -52,7 +52,7 @@ mi kama e sona ni lon mama mi: moku mi li ike ala.
 
 mama mi li sona e pona uta pi moku mi la mi kama kepeken nasin ante. mi awen kepeken nasin ni. ona li nasin mi pi tenpo ni. 
 
-ken la mi wile pali e moku, taso mama li lon pok. ni la mi pana e kalama musi wawa tawa kute mi kepeken ilo kute lili. mi pali sama ni: mama li lon ala. mi toki tawa mama mi e ni: mi lon ala. sijelo mi li lon, taso kon mi li lon ma ante. o toki ala tawa mi lon nasin mi pi pali moku. 
+ken la mi wile pali e moku, taso mama li lon poka. ni la mi pana e kalama musi wawa tawa kute mi kepeken ilo kute lili. mi pali sama ni: mama li lon ala. mi toki tawa mama mi e ni: mi lon ala. sijelo mi li lon, taso kon mi li lon ma ante. o toki ala tawa mi lon nasin mi pi pali moku. 
 
 nasa mute tawa mi la mama li kute e ni. lon la ona kin li pali sama ni: mi lon ala. ona li lukin ala e pali mi. ken suli la ona li sona e ni: ona li lukin la ona li kama pilin ike li kama wile toki. 
 
