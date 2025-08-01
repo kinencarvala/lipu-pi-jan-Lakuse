@@ -35,7 +35,7 @@ kin la mi kama ala sona e ni: nasin seme la kulupu pi toki pona la kepeken mani 
 
 ### lipu tenpo
 
-sina lukin ala lukin e ni: tenpo poka la, kulupu pali pi "[lipu tenpo]()" li toki ni: 
+sina lukin ala lukin e ni: tenpo poka la, kulupu pali pi "[lipu tenpo](https://liputenpo.org)" li toki ni: 
 
 lipu tenpo li jo e mani li wile sona e nasin pona kepeken. tawa ni la kulupu pali li alasa e pilin tan jan mute li toki sama ni: mani o tawa ijo seme? ijo sin seme pi toki pona o kama lon?
 
